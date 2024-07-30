@@ -1,1 +1,1 @@
-Chris and Ken doing Camelyon competition stuff!
+Chris and Ken trying our hand at the Camelyon2017 competition. 
